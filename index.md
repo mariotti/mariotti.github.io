@@ -1,6 +1,6 @@
 ### Welcome to my GitHub Pages
 
-I Just started and you will see little information here. I will be please if you can come back very soon.
+I Just started and you will see little information here. I will be pleased if you can come back very soon.
 
 # My BIO
 
